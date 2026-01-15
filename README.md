@@ -37,7 +37,7 @@
 ## 📫 How to Reach Me
 
 - 📧 Email: **manthansingh27525@gmail.com**  
-- 💼 LinkedIn: https://www.linkedin.com/in/your-linkedin-username  
+- 💼 LinkedIn: https://www.linkedin.com/in/manthan077  
 - 🐦 X (Twitter): https://x.com/Manthan0088  
 
 ---
